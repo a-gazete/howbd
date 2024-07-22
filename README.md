@@ -7,7 +7,7 @@
 `Getting out of your comfort zone is courage. But then, you can organize. Work on it. 
 This text tells my way of working it. It can be applied for any path of life yet to be discovered. But I'll use a biz-venture as an example, without restricting what I have to say. 
 
-The context is **_a new path in life_**. Doesn't matter you've seen others walking it steady/for centuries – biz-ventures, marriage, starting schools, changing jobs, moving to a new apartment/town/country, taking up a hobby, .. . You can't yet see yourself there. You wanna walk it – the decision is there. But, you can't comfortably picture yourself in it for 30 consecutive seconds. And, this is after much research, talking to people who've done it((1)), and whatever resource you could think of till you're satisfied you exhausted them all. You still need a picture to start with. You do have all the info, but not the guts to act on it. 
+The context is **_a new path in life_**. Doesn't matter you've seen others walking it steady/for centuries – biz-ventures, marriage, starting schools, changing jobs, moving to a new apartment/town/country, taking up a hobby, .. . You can't yet see yourself there. You wanna walk it – the decision is there. But, you can't comfortably picture yourself in it for 30 consecutive seconds. And, this is after much research, talking to people who've done it, and whatever resource you could think of till you're satisfied you exhausted them all. You still need a picture to start with. You do have all the info, but not the guts to act on it. 
 
 My way of drawing such picture is drawing its boundaries and my way of doing it is "What's the worst that can happen."
 
