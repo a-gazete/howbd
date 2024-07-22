@@ -2,7 +2,7 @@
 
 
 <p align="right">In my Dad's (PBUH) memory. He is the one that gave me this angle, and many others in life.<br>
-  “_Canımı sıkan bir şey olduğunda araştırırım bakarım 'niye, nedir bu' diye. Sonra ‘haa o kadar da kötü değilmiş, buna can sıkmaya değmez’ derim. Canımın sıkıntısı gider_ ”</p>
+  “<i>Canımı sıkan bir şey olduğunda araştırırım bakarım 'niye, nedir bu' diye. Sonra ‘haa o kadar da kötü değilmiş, buna can sıkmaya değmez’ derim. Canımın sıkıntısı gider</i> ”</p>
 
 `Getting out of your comfort zone is courage. But then, you can organize. Work on it. 
 This text tells my way of working it. It can be applied for any path of life yet to be discovered. But I'll use a biz-venture as an example, without restricting what I have to say. 
