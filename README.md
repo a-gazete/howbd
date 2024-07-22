@@ -1,13 +1,10 @@
 # "What's the Worst That Can Happen?"
 
+<p align="right">In my Dad's (PBUH) memory. He is the one that gave me this angle, and many others in life.<br>  “<i>Canımı sıkan bir şey olduğunda araştırırım bakarım 'niye, nedir bu' diye. Sonra ‘haa o kadar da kötü değilmiş, buna can sıkmaya değmez’ derim. Canımın sıkıntısı gider</i> ”</p> 
 
-<p align="right">In my Dad's (PBUH) memory. He is the one that gave me this angle, and many others in life.<br>
-  “<i>Canımı sıkan bir şey olduğunda araştırırım bakarım 'niye, nedir bu' diye. Sonra ‘haa o kadar da kötü değilmiş, buna can sıkmaya değmez’ derim. Canımın sıkıntısı gider</i> ”</p>
+--------
 
-#
-
-
-`Getting out of your comfort zone is courage. But then, you can organize. Work on it. 
+Getting out of your comfort zone is courage. But then, you can organize. Work on it. 
 This text tells my way of working it. It can be applied for any path of life yet to be discovered. But I'll use a biz-venture as an example, without restricting what I have to say. 
 
 The context is **_a new path in life_**. Doesn't matter you've seen others walking it steady/for centuries – biz-ventures, marriage, starting schools, changing jobs, moving to a new apartment/town/country, taking up a hobby, .. . You can't yet see yourself there. You wanna walk it – the decision is there. But, you can't comfortably picture yourself in it for 30 consecutive seconds. And, this is after much research, talking to people who've done it, and whatever resource you could think of till you're satisfied you exhausted them all. You still need a picture to start with. You do have all the info, but not the guts to act on it. 
