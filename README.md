@@ -37,7 +37,7 @@ You’re just having a look at it by yourself. You don’t have to show it to an
 
 2) You'll have analyzed it. You now know better where/which to act on, initial steps, where the gaps are .. . You’ll start saying yourself things like “_no place in theory that they all can go bad_” (and this is very accurate), “.. _then I’d do this_ [some plan-B option occurs to you]..”, “.._well, maybe I can get insurance but not that big a risk_,  ”, “.._let it sink, not that bad_..”.. all finding a form/structure and no longer are noises on your thoughts. You can't even wait to act on it now, let alone courage. You gained the astronaut's view – you’re on top of it all.
 
-Don't any push/judge yourself. Just do it. This isn't a planning process – that's not the intent here. Those come out at (2) above, if any, are by-products that you might want to put them at use when you sit at planning. But that's separate. 
+Don't any push/judge yourself. Just do it. This isn't a planning process – that's not the intent here. Those come out at (2) above, if any, are by-products that you might want to put at use when you sit at planning. But that's separate. 
 
 You're not manifesting the bad that can happen by doing all this. You're dispersing the fog. 
 They were the energy-eating noises in your thinking. They all are now finding an organized form. The are becoming positive ingredients into your thinking.  
@@ -47,6 +47,6 @@ They were the energy-eating noises in your thinking. They all are now finding an
 Someone trusted can say "_don't worry, it'll be alright_" to replace all this, especially if s/he/they have the know-how or coverage of that path. That's a great comfort, but comes to the same thing – "_worst comes to worst, I can turn to him_". Having trusted people believing in you is extra, and is very precious to have. Within it, having that vision-of-boundaries, where things belong in the overall picture is a tool. It gives you a v.good picture of things as a whole, and helps you analyze, absorb and digest things so that you can take it all up and experience more fully. 
 
 When you're dedicated and/or desperate,  you have another kind of plus right off. 
-Can even be a big negative that you are experiencing "right now" and wanna get out of. You want out of it no matter what, So you're automatically leaping over those supposedly-to-scare you in your new path, and this is a good very thing. You're turning a negative into positive. Using something bad as a motivation/push. Still with this, this technique would help organize your initial steps and entry strategies.   
+Can even be a big negative that you are experiencing "right now" and wanna get out of. You want out of it no matter what, So you're automatically leaping over those supposedly-to-scare you in your new path, and this is a very good thing. You're turning a negative into positive. Using something bad as a motivation/push. Still with this, this technique would help organize your initial steps and entry strategies.   
 
 More effective on control freak types on the personality scala. There are people that decide-and-start, or even get-inspired-and-start without a moment in between. I can’t see these much useful in their dynamics. But then every person is unique. Never know what gets one inspired for what, if it does.
