@@ -40,7 +40,7 @@ You’re just having a look at it by yourself. You don’t have to show it to an
 Don't any push/judge yourself. Just do it. This isn't a planning process – that's not the intent here. Those to come out at (2) above, if any, are by-products that you might want to put at use when you sit at planning. But that's separate. 
 
 You're not manifesting the bad that can happen by doing all this. You're dispersing the fog. 
-They were the energy-eating noises in your thinking. They all are now finding an organized form. The are becoming positive ingredients into your thinking.  
+They were the energy-eating noises in your thinking. They all are now finding an organized form. They are becoming positive ingredients into your thinking.  
 
 ## Additional Notes 
 
